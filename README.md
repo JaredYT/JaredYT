@@ -1,3 +1,5 @@
+                !!INTRODUCTION!!
+
 - 👋 Yo, I’m Jared/JaredYT
 - 👀 I’m interested in anime and other stuff
 - 🏫 I’m currently learning in 2nd year high school
